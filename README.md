@@ -15,6 +15,14 @@
 4. TX
 5. MA
 
+## **My Super power include but not limited to**
+* FLYING
+* LASER EYES
+* THROWING FIRE
+* INSTANTLY HEATING YOUR LUNCH OR DINNER
+* IMMUNITY TO SUNBURN
+* 
+
 
 
 
